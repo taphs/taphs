@@ -1,7 +1,15 @@
 <div align="center">
 
-[READ PLEASE](https://rentry.co/4saken)
+⠀⠀[READ PLEASE](https://rentry.co/4saken)
 </div>
+
+<div align="center">
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o0k57cb316l0a9ksqzpbnbko6&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&bar_color=999999&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=o0k57cb316l0a9ksqzpbnbko6&redirect=true)
+</div>
+
+
+
 
 <div align="center">
   
