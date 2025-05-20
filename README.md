@@ -1,5 +1,7 @@
 <div align="center">
 
+⠀⠀[rentry](https://rentry.co/timeazure)⠀[rant](https://rentry.co/retrochance)⠀[ata](https://dagger.atabook.org/)
+
 ⠀⠀[READ PLEASE](https://rentry.co/4saken)
 </div>
 
